@@ -1,1 +1,1 @@
-For reading this ebook first you have to install fbreader or any other ebook reader in your linux system or else you can download pdf.
+This is a very nice book and you will learn lot of things. I hope you will enjoy this book, because many interested things are there to read in this book.
